@@ -1,1 +1,1 @@
-# jooshchoi.github.io
+its wednesday my dudes
